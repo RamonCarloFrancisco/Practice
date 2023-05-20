@@ -1,1 +1,1 @@
-# Practice
+# Updated_BSIT_Curriculum
